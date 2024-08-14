@@ -6,4 +6,7 @@ Meu nome é Gabrielle
 -Estou me desenvolvendo na linguagem JavaScript
 -Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Voc
+### Você entrar em contato comigo📫
+
+gdasilvasantosconceicao@gmail.com
+@biisilva_02
