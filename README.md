@@ -11,3 +11,5 @@ Meu nome é Gabrielle
 gdasilvasantosconceicao@gmail.com
 
 @biisilva_02
+
+![](https://media1.tenor.com/m/V7X5UiUmtNoAAAAC/strawberry-shortcake-blingee.gif)
