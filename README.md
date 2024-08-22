@@ -1,6 +1,6 @@
 ## Boas vindas ao meu perfil
 
-Meu nome é Gabrielle
+Meu nome é corna silva
 
 -Estou estudando no [Alura](https://www.alura.com.br)
 
